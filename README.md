@@ -11,3 +11,6 @@ Ada banyak materi bagus di luar sana, namun sebaiknya hati-hati dalam memilih ka
 	• Buku atau video materi apa yang terbaik terkait subjek itu?
 
 Dan panduan ini kami rangkum untuk menjawab kedua pertanyaan itu. 
+
+### TL;DR:
+Pelajari semua kesembilan subjek di bawah ini, sesuai urutan. Kamu boleh memilih salah satu versi baik itu buku atau video. Tapi idealnya sebaikny pelajari kedua versi sekaligus. Alokasikan waktu belajar 100-200 jam per topik, kemudian kamu bisa berkala mengulangi materi yg kamu suka saja atau mungkin yang berhubungan dengan karir kamu. 🚀 
